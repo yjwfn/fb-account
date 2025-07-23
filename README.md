@@ -2,7 +2,7 @@
 
 **所有账号已按国家设置姓名、上传头像、绑定手机&邮箱，开启2fa认证。**
 
-![IMG_2517](https://github.com/user-attachments/assets/d21867af-6fc6-4b2f-8f8a-f3aaffbcd62c)
+![IMG_2517](https://github.com/user-attachments/assets/57969b09-907c-4fcd-828e-b4244f61058a)
 
 # 联系我们
 
